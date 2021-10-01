@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tommasovnf92
+- 👀 I’m interested in Crypto, Trading System, Blockchains and many more
+- 🌱 I’m currently learning Python, Java
+- 💞️ I’m looking to collaborate on Python, Tradingview
+- 📫 How to reach me  📷 Tommaso_vnf on instagram
